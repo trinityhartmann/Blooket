@@ -1,1 +1,1 @@
-i personally use this gui ive spread it to friends what makes it special is the site i got these from has removed this hack so have fun fellow citizens.
+i personally use this gui ive spread it to friends what makes it special is the site i got these from has removed this hack so have fun fellow citizens DONT GO BEING MAD WHEN IT DOESNT WORK IT ONLY WORKS FOR HOST GAMES NOT SOLO.
